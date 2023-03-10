@@ -1,1 +1,1 @@
-# Pingy-
+# Pingy
